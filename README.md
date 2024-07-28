@@ -25,6 +25,7 @@
 --/- please try not to tease me too hard, i know i sound like a wimp but i am sensetive ToT
 --/- [TW!] if you're going through something like $H/$u1cid4l thoughts, i'm not the person to talk to, i'm just a kid. i can try my best to comfort you but please call 9-8-8 or talk to a  therapist. more people love you than you think, including me! <3 it isn't worth it to die so young. you would miss out on so much.. []
 please don't call me baby or any other pet names (pookie + bbg are fine as long as it's platonic/joking)
+--/- please use tone indicators!! (look them up if you don't know)
 --/- ⚠️ ; I am under 18. DNI if you are 20+ years old. /srs
 
 --/- i think that's all for now, but i'll add more if i want to! have a good day/night, i'll catch you on the flip side! B)
