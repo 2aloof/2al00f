@@ -3,7 +3,7 @@
 ; inspired by: @2oni <3
 ; TW: minor discussion of $H + gr00ming(?) + $3xu4l jokes (boundaries)
 
-~ hi, you can call me aloof, booksters, or tori!
+~ hi, you can call me aloof, booksters, silly/sill, or tori!
 --/- my pronouns are she/her but they/them is okay too
 --/- i like murder drones, tadc (not that much anymore), the owl house, gravity falls, amphibia, undertale, deltarune, mlp, and i play roblox sometimes (can I get a friend requ- /ref)
 --/- i like drawing but i'm BAD AT IT LOL
