@@ -4,7 +4,7 @@
 
 ~ hi, you can call me aloof, booksters, or tori!
 --/- my pronouns are she/her but they/them is okay too
---/- i like murder drones, tadc (not that much anymore), the owl house, gravity falls, amphhibia, undertale, deltarune, mlp, and i play roblox sometimes (can I get a friend requ- /ref)
+--/- i like murder drones, tadc (not that much anymore), the owl house, gravity falls, amphibia, undertale, deltarune, mlp, and i play roblox sometimes (can I get a friend requ- /ref)
 --/- i like drawing but i'm BAD AT IT LOL
 --/- probably neurodivergent (or just really silly /hj)
 --/- current favorite song(s): the blonde - TV girl , promise - Laufey , best tears - The Happy Fits , shrug - Lunar Vacation
