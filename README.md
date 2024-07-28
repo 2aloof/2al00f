@@ -14,13 +14,13 @@
 --/- favorite animals: foxes, cats, deer, leopards
 --/- im currently learning russian! привет ;)
 
---/- check out these youtubers!! : @mebby , @Kangaroo_Child , @BreDrawz , @KosmoXCloudz , @biscuitxbites :3
+; check out these youtubers!! : @mebby , @Kangaroo_Child , @BreDrawz , @KosmoXCloudz , @biscuitxbites :3
 
---/- (the words on my pfp says "happiness is temporary" in case you can't read it ^^)
+; the words on my pfp say "happiness is temporary" in case you can't read it ^^
 
-; boundaries!! ,,
+; boundaries!! ,, [TW]
 --/- i don't like $3xu4l or explicit jokes
---/- feel free to hide behind/cuddle me in game :3
+--/- feel free to hide behind/cuddle me in game + kisses are fine :3
 --/- i don't like swearing but i won't restrict you from doing that
 --/- please add a friend note for me so you don't forget who i am! i recommend adding a date and some innformation, like pronouns n' stuff :]
 --/- please try not to tease me too hard, i know i sound like a wimp but i am sensetive ToT
