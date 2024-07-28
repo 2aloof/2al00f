@@ -23,7 +23,7 @@
 --/- feel free to hide behind/cuddle me in game + kisses are fine :3
 --/- i don't like swearing but i won't restrict you from doing that
 --/- please add a friend note for me so you don't forget who i am! i recommend adding a date and some innformation, like pronouns n' stuff :]
---/- please try not to tease me too hard, i know i sound like a wimp but i am sensetive ToT
+--/- please try not to tease me too hard, i know i sound like a wimp but i am sensetive ToT, calling me silly names or just messin' around's ok as long as you don't go to far
 --/- [TW!] if you're going through something like $H/$u1cid4l thoughts, i'm not the person to talk to, i'm just a kid. i can try my best to comfort you but please call 9-8-8 or talk to a  therapist. more people love you than you think, including me! <3 it isn't worth it to die so young. you would miss out on so much.. []
 please don't call me baby or any other pet names (pookie + bbg are fine as long as it's platonic/joking)
 --/- please use tone indicators!! (look them up if you don't know)
