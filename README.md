@@ -1,5 +1,6 @@
 ,, howdy! let's get this started :3 _-
 
+; inspired by: @2oni <3
 ; TW: minor discussion of $H + gr00ming(?) + $3xu4l jokes (boundaries)
 
 ~ hi, you can call me aloof, booksters, or tori!
