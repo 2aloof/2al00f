@@ -21,8 +21,10 @@
 --/- i know a bit of russian from duolingo!
 
 [] favorite characters !! []
-hfjone : liam (backpack), circle (with a mole), folder 😍, texty, whippy creamy, atom
-murder drones : uzi, n, past tessa, past cyn, yeva
+>
+- hfjone : liam (backpack), circle (with a mole), folder 😍, texty, whippy creamy, atom
+>
+- murder drones : uzi, n, past tessa, past cyn, yeva
 
 + i'm kinda shy so you might need to come up to me ^^" +
 
