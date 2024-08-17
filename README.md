@@ -27,7 +27,7 @@
 - murder drones : uzi, n, past tessa, past cyn, yeva
 
 
-+ i'm kinda shy so you might need to come up to me ^^" +
+note: i'm kinda shy so you might need to come up to me ^^"
 
 ; check out these underrated youtubers!! (most are murder drones youtubers ;;) : @mebby , @jaseithink , @Kangaroo_Child , @BreDrawz , @KosmoXCloudz , @biscuitxbites @renqzxd , @rusty_courage , @SaltyPepper , @ZenUniverseYT , @justdrippyedits9000 , @kettlexccp , @blanterdang6112 :3
 
