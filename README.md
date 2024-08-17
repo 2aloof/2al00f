@@ -37,6 +37,8 @@ note: i'm kinda shy so you might need to come up to me ^^"
 --/- airy x ANYONE shippers DNI 😭
 --/- i don't like $3xu4l or explicit jokes
 --/- please don't ask for my discord until we get to know each other a bit.. it's happened a couple times that ppl give me their dc then we just stop talking 'cause we're not really "friends"
+--/- i can be a bit of a pushover or trust too easily but please don't take advantage of me. i know there might be a bad person reading this but the most i can do is just as you to not..
+--/- back on the trust thing, i might tell you too much.. erm.. so like, sorry 😭 you can ask me to stop talking if you want just like try to be nice about it lol
 --/- I DO NOT ROLEPLAY NO MATTER WHAT. if i do ever roleplay it's barely 😭 so please don't try to roleplay with me
 --/- feel free to hide behind/cuddle me in game + kisses are fine with me :3
 --/- i don't like swearing but i won't restrict you from doing that
@@ -46,6 +48,7 @@ note: i'm kinda shy so you might need to come up to me ^^"
 please don't call me baby or any other pet names (pookie + bbg are fine as long as it's platonic/joking)
 --/- please use tone indicators!! (look them up if you don't know)
 --/- remember. just because we're on each others' friends lists doesn't mean we're friends (respectfully, of course) :]
+--/- if you make me uncomfortable i have the right to unfriend/block you. same goes for you! we can talk it out, too, or not if you aren't comfortable.
 --/- ⚠️ ; I am under 18. DNI if you are 20+ years old. /srs
 
 --/- i think that's all for now, but i'll add more if i want to! have a good day/night, i'll catch you on the flip side! B)
