@@ -33,6 +33,8 @@ note: i'm kinda shy so you might need to come up to me ^^"
 
 ; boundaries!! ,, [TW] !! PLEASE READ !!
 --/- antitherians / antifurries , proshippers / comshippers DNI! (look them up if you don't know what they mean)
+--/- j x uzi, v x uzi, n x thad, and n x j shippers DNI please :3 (you can ship who you want but those make me uncomfortable ^^)
+--/- airy x ANYONE shippers DNI 😭
 --/- i don't like $3xu4l or explicit jokes
 --/- please don't ask for my discord until we get to know each other a bit.. it's happened a couple times that ppl give me their dc then we just stop talking 'cause we're not really "friends"
 --/- I DO NOT ROLEPLAY NO MATTER WHAT. if i do ever roleplay it's barely 😭 so please don't try to roleplay with me
