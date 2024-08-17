@@ -13,7 +13,7 @@
 --/- probably neurodivergent (or just really silly /hj)
 --/- Christian (please respect me i promise i'm not like the bad ones TT)
 --/- asexual !! (look it up if you don't know what it means you uncultured swine /hj) >:3 cake eaters unite 🙌 
---/- current favorite song(s): make of this what you will - Billy Cobb , cabinet man - Lemon Demon , around the bend from the ONE soundtrack , eek! - Surasshu , lemon boy - Cavetown , me and my husband - Mitski
+--/- current favorite song(s): make of this what you will - Billy Cobb , cabinet man - Lemon Demon , around the bend from the ONE soundtrack , eek! - Surasshu , lemon boy - Cavetown , me and my husband - Mitski , passing through (can't the future just wait) - Kaden MacKay
 --/- characters i kin: luz (the owl house) , probably 2??? (tpot) , probably engel? (fundamental paper education) , n (murder drones) , probably tessa (murder drones)
 --/- favorite song artists: Laufey , Madilyn Mei , Lunar Vacation , Tally Hall , Cavetown , The Crane Wives
 --/- favorite color: green!1!!1
