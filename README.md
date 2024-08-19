@@ -7,14 +7,14 @@
 ~ hi, you can call me aloof, booksters, tori, lottie or make up a nickname!
 --/- i'm from america (boring basic biscuit 😒 /j)
 --/- my pronouns are she/her but they/them is okay too
---/- i like murder drones, tadc (not that much anymore), the owl house, gravity falls, amphibia, undertale, deltarune, mlp, tpot, regretevator (on roblox) and hfjone ^^
+--/- i like murder drones, tadc (not that much anymore), the owl house, gravity falls, amphibia, undertale, deltarune, mlp, tpot, bfc, objectified (comic), heathers the musical, regretevator (on roblox) and hfjone ^^
 --/- i like drawing but i'm BAD AT IT LOL
 --/- i like youtubers like @PolarCub , @flamingo , @denisdaily , @REHDY , @BigMamaEternal , @RobertIDK , @thechadx2 , @FilmCooper , @JeanyCollects , and @Danny-Gonzalez 
 --/- probably neurodivergent (or just really silly /hj)
 --/- Christian (please respect me i promise i'm not like the bad ones TT)
 --/- asexual !! (look it up if you don't know what it means you uncultured swine /hj) >:3 cake eaters unite 🙌 
 --/- current favorite song(s): make of this what you will - Billy Cobb , cabinet man - Lemon Demon , around the bend from the ONE soundtrack , eek! - Surasshu , lemon boy - Cavetown , me and my husband - Mitski , passing through (can't the future just wait) - Kaden MacKay
---/- characters i kin: luz (toh) , 2 (tpot) , engel (fpe) , n (murder drones) , tessa (murder drones) , black hole (tpot) , marcy wu (amphibia)
+--/- characters i kin: luz *toh* (heavy) , 2 *tpot* (heavy) , engel fpe , n *murder drones* (heavy) , tessa *murder drones* (low) , black hole *bfdi* , marcy wu *amphibia* (heavy) , elizabeth afton *fnaf* (low) , basil *omori* (heavy) , fluttershy *mlp* (heavy) , texty *hfjone* , sketchpad *the object manor* (heavy) , suitcase *inanimate insanity* , bubble *tadc* (low) , the collector *toh* , mabel *gravity falls* , cyn *murder drones* (low) , fan *inanimate insanity*
 --/- favorite song artists: Laufey , Madilyn Mei , Lunar Vacation , Tally Hall , Cavetown , The Crane Wives
 --/- favorite color: green!1!!1
 --/- favorite animals: foxes, cats, deer, leopards, sharks
@@ -51,7 +51,7 @@ please don't call me baby or any other pet names (pookie + bbg are fine as long 
 --/- please use tone indicators!! (look them up if you don't know)
 --/- remember. just because we're on each others' friends lists doesn't mean we're friends (respectfully, of course) :]
 --/- if you make me uncomfortable i have the right to unfriend/block you. same goes for you! we can talk it out, too, or not if you aren't comfortable.
---/- ⚠️ ; I am under 18. DNI if you are 20+ years old. /srs
+--/- ⚠️ ; I am under 18. DNI if you are 18+ years old. /srs
 
 --/- i think that's all for now, but i'll add more if i want to! have a good day/night, i'll catch you on the flip side! B)
 
