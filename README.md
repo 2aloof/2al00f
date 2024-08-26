@@ -52,6 +52,7 @@ note: i'm kinda shy so you might need to come up to me !! ^^"
 - [TW! mention of $H + $u1c1d3] if you're going through something like $H/$u1c1d4l thoughts, i'm not the person to talk to, i'm just a kid. i can try my best to comfort you but please call 9-8-8 or talk to a therapist. more people love you than you think, including me! <3 it isn't worth it to die so young. you would miss out on so much.. the best advice i can give is to think of the good things every time you have those thoughts. like, your favorite food, your friends (if you have any and if they are good), your favorite show/movie or your pet if you have one.. 
 - please don't call me baby or any other pet names (pookie + bbg are fine as long as it's platonic/joking)
 - please use tone indicators!! (look them up if you don't know)
+- I HATE ENGLISH OR SPANISH JOKES IDK WHY BUT I JS HATE THEM SO FRICKIN MUCH >:[
 - remember: just because we're on each others' friends lists doesn't mean we're friends. (respectfully, of course) :]
 - if you make me uncomfortable i have the right to unfriend/block you. same goes for you! we can talk it out, too, or not if you aren't comfortable.
 - ⚠️ ; I am under 17. DNI if you are 17+ years old. /srs
