@@ -19,7 +19,7 @@
 - youtubers i like: @PolarCub , @flamingo , @denisdaily , @REHDY , @BigMamaEternal , @RobertIDK , @thechadx2 , @FilmCooper , @JeanyCollects , and @Danny-Gonzalez
 - current favorite songs: cabinet man - Lemon Demon , icicles - The Scary Jokes , harness your hopes - b-side - Pavement , tek it - Cafune , isle unto thyself - Miracle Musical , american healthcare (glitzy) - Penelope Scott , community gardens - The Scary Jokes
 - characters i kin: luz (toh) , 2 (tpot) , engel (fpe) , n (murder drones) , black hole (bfdi) , marcy wu (amphibia) , basil (omori) , fluttershy (mlp) , texty (hfjone) , the collector (toh) 
-- favorite song artists: Laufey, Madilyn Mei, Lunar Vacation, Tally Hall, Cavetown, The Crane Wives, The Scary Jokes, Penelope Scott, Lemon Demon, Mother Mother, Will Wood
+- favorite song artists: Laufey, Madilyn Mei, Lunar Vacation, Tally Hall, Cavetown, The Crane Wives, The Scary Jokes, Penelope Scott, Lemon Demon, Mother Mother, Will Wood, Jack Stauber/Jack Stauber's Micropop
 - favorite colors: green, blue, yellow, black, white !!
 - favorite animals: foxes, cats, deer, leopards, sharks
 
