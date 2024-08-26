@@ -23,20 +23,41 @@
 - favorite colors: green, blue, yellow, black, white !!
 - favorite animals: foxes, cats, deer, leopards, sharks
 
-[] favorite characters !! []
+` note: i'm kinda shy so you might need to come up to me !! ^^" `
+
+` games i play !! `
+- animal jam (classic + play wild)
+- roblox
+- minecraft (not that much)
+- pony town (obviously XD)
+- emuferal (fer.al)
+- gacha life/gacha club/gacha life 2 (don't judge me they're fun >:p)
+- animal crossing: new horizons (not that much)
+
+` [] favorite characters !! [] `
 >
-- hfjone : liam (backpack), circle (with a mole), folder 😍, texty, whippy creamy, atom
+- hfjone : liam (backpack), circle with a mole, folder 😍, texty, whippy creamy, atom
 >
 - murder drones : uzi, n, past tessa, past cyn, yeva
 >
 - tpot : 2, black hole, remote, taggy, teardrop, fanny, gatey, bell, lightning
 
+` ; check out these underrated youtubers!! :3 `
+- @mebby
+- @jaseithink
+- @Kangaroo_Child
+- @BreDrawz
+- @KosmoXCloudz
+- @biscuitxbites
+- @renqzxd
+- @rusty_courage
+- @SaltyPepper
+- @ZenUniverseYT
+- @justdrippyedits9000
+- @kettlexccp
+- @blanterdang6112 
 
-note: i'm kinda shy so you might need to come up to me !! ^^"
-
-; check out these underrated youtubers!! : @mebby , @jaseithink , @Kangaroo_Child , @BreDrawz , @KosmoXCloudz , @biscuitxbites , @renqzxd , @rusty_courage , @SaltyPepper , @ZenUniverseYT , @justdrippyedits9000 , @kettlexccp , @blanterdang6112 :3
-
-; boundaries!! ,, [TW] !! PLEASE READ !!
+` ; boundaries!! ,, [TW] !! PLEASE READ !! `
 - antitherians / antifurries , proshippers / comshippers DNI! (look them up if you don't know what they mean)
 - j x uzi, v x uzi, n x thad, and n x j shippers DNI please :3 (you can ship who you want but those make me uncomfortable ^^)
 - airy x ANYONE + taylor x ANYONE shippers DNI 😭
