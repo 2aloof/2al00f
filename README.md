@@ -4,23 +4,23 @@
 - ; TW: minor discussion of $H + $u1c1d3
 
 ` - + About me !! + - `
-~ hi, you can call me aloof, graphite/graph, booksters, tori, lottie or make up a nickname!
+~ hi, you can call me aloof, graphite/graph, tori, lottie or make up a nickname!
 
 - silly goober warning !! >:3
 - ⚠️ minor (adults dni >:[ /srs)
 - often emoticon user (as you can probably tell 🤭)
 - i'm from america (boring basic biscuit 😒 /j)
-- my pronouns are she/her but they/them is okay too
-- i like murder drones, tadc, the owl house, gravity falls, amphibia, undertale, deltarune, mlp, tpot, bfc, animatic battle, objectified (comic), heathers the musical, regretevator (on roblox) and hfjone ^^ 
+- my pronouns are she/her, but i'm now a questioning demigirl 😭
+- i like murder drones, tadc, the owl house, gravity falls, amphibia, undertale, deltarune, mlp, object shows, heathers the musical, and regretevator (on roblox)
 - probably neurodivergent (spectrum + adhd most likely)
-- quadrobist + otherpaw ; questioning cat therian?
+- quadrobist + otherpaw ; questioning therian?
 - Christian (please respect me i promise i'm not like the bad ones TT)
-- straight + asexual !! >:3 cake eaters unite 🙌
+- straight + asexual !! >:3 (cake eaters unite 🙌)
 - youtubers i like: @PolarCub , @flamingo , @denisdaily , @REHDY , @BigMamaEternal , @RobertIDK , @thechadx2 , @FilmCooper , @JeanyCollects , and @Danny-Gonzalez
-- current favorite songs: cabinet man - Lemon Demon , icicles - The Scary Jokes , harness your hopes - b-side - Pavement , tek it - Cafune , isle unto thyself - Miracle Musical , american healthcare (glitzy) - Penelope Scott , community gardens - The Scary Jokes
-- characters i kin: luz (toh) , 2 (tpot) , engel (fpe) , n (murder drones) , black hole (bfdi) , marcy wu (amphibia) , basil (omori) , fluttershy (mlp) , texty (hfjone) , the collector (toh) 
-- favorite song artists: Laufey, Madilyn Mei, Lunar Vacation, Tally Hall, Cavetown, The Crane Wives, The Scary Jokes, Penelope Scott, Lemon Demon, Mother Mother, Will Wood, Jack Stauber/Jack Stauber's Micropop
-- favorite colors: green, purple, blue, yellow, black !!
+- current favorite songs: cigarette ahegao - Penelope Scott , bill watterson - Lemon Demon , waltz in e-major, op. 15 "moon waltz" - Cojum Dip , blue hair - TV Girl , community gardens - The Scary Jokes , like the entire April Fools album by The Scary Jokes 😭
+- characters i kin: luz (toh) , 2 (tpot) , engel (fpe) , n (murder drones) , black hole (bfdi) , marcy wu (amphibia) , basil (omori) , fluttershy (mlp) , texty (hfjone) , shattered ornament (animatic battle)
+- favorite song artists: Laufey, Madilyn Mei, Lunar Vacation, Tally Hall, Miracle Musical, Cavetown, The Crane Wives, The Scary Jokes, Penelope Scott, Lemon Demon, Mother Mother, Will Wood, Jack Stauber/Jack Stauber's Micropop
+- favorite colors: green, purple, black !!
 - favorite animals: foxes, cats, deer, leopards, sharks
 
 ` note: i'm kinda shy so you might need to come up to me !! ^^" `
@@ -33,29 +33,6 @@
 - emuferal (fer.al)
 - gacha life/gacha club/gacha life 2 (don't judge me they're fun >:p)
 - animal crossing: new horizons (not that much)
-
-` [] favorite characters !! [] `
->
-- hfjone : liam (backpack), circle with a mole, folder 😍, texty, whippy creamy, atom
->
-- murder drones : uzi, n, past tessa, past cyn, yeva
->
-- tpot : 2, black hole, remote, taggy, teardrop, fanny, gatey, bell, lightning
-
-` ; check out these underrated youtubers!! :3 `
-- @mebby
-- @jaseithink
-- @Kangaroo_Child
-- @BreDrawz
-- @KosmoXCloudz
-- @biscuitxbites
-- @renqzxd
-- @rusty_courage
-- @SaltyPepper
-- @ZenUniverseYT
-- @justdrippyedits9000
-- @kettlexccp
-- @blanterdang6112 
 
 ` ; boundaries!! ,, [TW] !! PLEASE READ !! `
 - antitherians / antifurries , proshippers / comshippers DNI! (look them up if you don't know what they mean)
@@ -77,6 +54,21 @@
 - remember: just because we're on each others' friends lists doesn't mean we're friends. (respectfully, of course) :]
 - if you make me uncomfortable i have the right to unfriend/block you. same goes for you! we can talk it out, too, or not if you aren't comfortable.
 - ⚠️ ; I am under 17. DNI if you are 17+ years old. /srs
+
+  ` ; check out these underrated youtubers!! :3 `
+- @mebby
+- @jaseithink
+- @Kangaroo_Child
+- @BreDrawz
+- @KosmoXCloudz
+- @biscuitxbites
+- @renqzxd
+- @rusty_courage
+- @SaltyPepper
+- @ZenUniverseYT
+- @justdrippyedits9000
+- @kettlexccp
+- @blanterdang6112 
 
 ` i think that's all for now, but i'll add more if i want to! have a good day/night, i'll catch you on the flip side !!B) `
 
